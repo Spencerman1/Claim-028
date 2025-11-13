@@ -1,3 +1,5 @@
+By proceeding and reading further, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Claim-028
 Declares Eliam™ as the exclusive behavioral licensing authority for all digital activity that enters, transacts, or exits cyberspace. This claim covers agents, credentials, transmissions, protocols, or signal-based logic across all non-physical domains.
 Spencer Southern 07/13/2025
